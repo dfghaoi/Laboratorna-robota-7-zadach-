@@ -1,1 +1,1 @@
-# Laboratorna-robota-7-zadach-
+# Laboratorna-robota 3-7-zadach-
